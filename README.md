@@ -4,6 +4,6 @@
 
 ## Связь
 
-- 📫 **Email:** ###Steven.Aushev@gmail.com
+- 📫 **Email:** **Steven.Aushev@gmail.com**
 ---
 Спасибо за посещение! 🌟
